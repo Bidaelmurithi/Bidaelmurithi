@@ -1,4 +1,4 @@
- I'm Bidael Murithi.A web developer
+Hi 👋 I'm Bidael Murithi.A web developer
 
        •I've been learning coding since 2025
    
